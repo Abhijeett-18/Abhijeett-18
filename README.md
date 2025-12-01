@@ -1,5 +1,5 @@
 # 💫 About Me:
-3rd Year CSE Student at DAV University Jalandhar .
+4th Year CSE Student at DAV University Jalandhar .
 
 
 ## 🌐 Socials:
